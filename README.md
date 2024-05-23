@@ -1,1 +1,1 @@
-![image](https://github.com/JaimeVillalbaO/SellPage-Advanced-Day-97/assets/152451848/1998ea03-7792-41af-868d-fa603084a93b)
+![image](https://github.com/JaimeVillalbaO/SellPage-Advanced-Day-97/assets/152451848/f8afb971-41a8-4db0-82ab-403577cd5f0c)
